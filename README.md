@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mw99746@gmail.com**
 
-- 📄 Know about my experiences here 👉 [Mohamed Waleed CV](https://drive.google.com/file/d/1kbhYGoxAn1VQfhz_YOM2Lq1Th0T90NI5/view?usp=sharing)
+- 📄 Know about my experiences here 👉 [Mohamed Waleed CV]([https://drive.google.com/file/d/1kbhYGoxAn1VQfhz_YOM2Lq1Th0T90NI5/view?usp=sharing](https://drive.google.com/file/d/1Vbkyi2IXal3KnBtmW6f8sXnrzMglH5is/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
